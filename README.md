@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @nicothebrush
+- 👀 I’m interested in solve problem with software
+- 📫 How to reach me: https://linktr.ee/nicolariolini
